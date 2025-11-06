@@ -20,5 +20,5 @@ I'm open to feedback, suggestions, and collaborative learning opportunities!
 
 | Platform | Link |
 | :--- | :--- |
-| Instagram | [@ulammunrg_](https://www.instagram.com/ulammnrg_?igsh=MTd0NWFkYmI3NjQ%3D) |
+| Instagram | [@ulammnrg_](https://www.instagram.com/ulammnrg_?igsh=MTd0NWFkYmI3NjQ%3D) |
 | TikTok | [@lam_prompted](http://tiktok.com/@lam_prompted) |
