@@ -1,5 +1,5 @@
 
-# Hi there! I'm Laam (UlamMnrg) 👋
+# Hi there! I'm Laam (Ulam Manurung) 👋
 
 > **A passionate beginner on a coding journey. Learning, building, and growing every day.**
 
